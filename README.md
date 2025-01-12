@@ -1,0 +1,1 @@
+See the [competition website](https://cryptopond.xyz/modelFactory/detail/306250) for more information.
